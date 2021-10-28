@@ -1,0 +1,1 @@
+Actuellement en cursus ingénierie à l'école marocaine des sciences de l'ingénieur en 5 ème année , je suis particulièrement intéressé par le développement informatique , à la recherche d'un stage PFE à partir de février 2022 dans le secteur de technologie informatique , afin d'appliquer et partager mes compétences acquises pendant mes études .
